@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @punkiee
+- 👀 I’m interested in winning
+- 🌱 I’m currently learning everyhitng
+- 💞️ I’m looking to collaborate on being my friend
+- 📫 How to reach me discord punkie5255 add up!
